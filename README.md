@@ -1,6 +1,6 @@
-### BOAS VINDAS AO MEU PERFIL 🌸 💞
+BOAS VINDAS AO MEU PERFIL 🌸 💞
  
- -meu nome é sintia
+-meu nome é sintia
 
-
+-tenho 15 anos
 
